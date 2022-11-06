@@ -1,2 +1,2 @@
 # EN
-Course of English
+Curso of english
